@@ -12,6 +12,4 @@ Esta es la historia de una _Software Factory_ muy peculiar.
 - Impresora para Palm
 - Te piso
 - Isla desierta
-
-## Frases
 - Porno viejo ruso
