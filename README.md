@@ -13,3 +13,57 @@ Esta es la historia de una _Software Factory_ muy peculiar.
 - Te piso
 - Isla desierta
 - Porno viejo ruso
+- "Who goes there?" (Belich)
+- El sysop con sentimientos
+- "Cómo te agarramos, pelado!"x2
+- Fast prototyper
+- "Q... Q-Q-Q-Q... P-P-P-Pero qué pasa acá?"
+- "Hola, chino?"
+- Recalcator / Agradeceitor
+- "Saludos, Walter"
+- "No sabés las cosas que hace a la noche con tu hija"
+- Los reyes del ping pong
+- Orgasmos rectales
+- "Yo no me baño más con ése"
+- Timón y Pumba
+- No ractors
+- "Nunca taché madre e hija". "Padre e hijo cuenta?"
+- "Putty? Cómo me decís eso? Bah... Quizá sea porque una tiene mucha experiencia"
+- "Yo tengo una vida"
+- "Podés abrir más los ojos?"
+- "Son cinco minutos, por favor, que si no nos bloqueás". "Son las 12, me voy a almorzar"
+- "Uh, boludo! Vos que sabés de todo, te puedo traer un celular y me lo arreglás?"
+- No se olviden de Patricio Bustos
+- Alfonso Pícaro
+- La Russa
+- Básquet con Mike
+- Self-expression
+- Fotos artísticas en bolas
+- "A mí me gusta lo ambiguo"
+- Enorme y hermoso
+- Google y puff
+- DELETE FROM USER
+- Año sabático psiquiátrico
+- El gaucho que sabe de computación
+- "Vino sin el chip de la ironía"
+- Da Graça Guerra Costa de Marfil
+- La rata en la oficina de Guido
+- Porno en los servidores
+- "Tengo una meeting"
+- Skinny-dipping
+- Spider no, cat.
+- "Ya sé cómo matarte"
+- Preferentlimently
+- Wanda
+- "Soy el flaco de la punta"
+- El susano
+- Atún, pollo y hepatitis
+- A correr con la DBA (o era tester?)
+- Abrazo de compromiso
+- Pusher de propagandas voluntario
+- Tenía un plan mejor
+- Nadia! Nadia! Nadia! Nadia! Nadia!
+- No vamos a parar de vender / Solitario en el cliente
+- "Acá se me presta atención a mí"
+- Pelotazos
+- Bola de espejos
