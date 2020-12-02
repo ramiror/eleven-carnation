@@ -67,3 +67,23 @@ Esta es la historia de una _Software Factory_ muy peculiar.
 - "Acá se me presta atención a mí"
 - Pelotazos
 - Bola de espejos
+- La tipa esa
+- "Quién es el mogólico este?"
+- "Allá tienen hospitales?"
+- El Fibra de la gente... quisiera un capítulo sobre él, aunque no se me ocurre ninguna historia puntual.
+- Transactions can suck my dick.
+- Dijkstra can suck my dick.
+- Zumbox: Modelo de proyecto al pedo.
+- Cultural misunderstanding
+- HiroJimmy
+- "Te dijeron 'señor'"
+- Almuerzos de la muerte en Garbís
+- La filosofía de la empanada
+- "Te la meto por el culo y te la saco por la boca"
+- "NO SOMOS GENTE DE HACER QUILOMBO!"
+- El hombre unidimensional
+- "Cuántos quedan?"
+- "Tu limpieza no me sirve"
+- Cartón en los monitores
+- Regando la planta sobre el monitor
+- "Qué especial... este proyecto..."
